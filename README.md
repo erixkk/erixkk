@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @erixkk
+- 👀 I’m a random people only CTW
+- 🌱 I’m currently learning "bird box"
+- 📫 How to reach me? idk
